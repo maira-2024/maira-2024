@@ -7,6 +7,8 @@ estudante do [colégio padre claudio morelli](https://g.co/kgs/1DcqBfP)
 
 etudando no 1 ano do ensino médio
 
+cursando o [alura](https://www.alura.com.br/)
+
 ig: @m.sntszxy
 
 obrigada por visitar meu perfil! 💗
